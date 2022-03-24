@@ -1,1 +1,1 @@
-There are all my school's projects! Enjoy it! 
+Wow, there are all my school's projects! Enjoy it! 
